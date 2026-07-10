@@ -1,4 +1,4 @@
-# Name's Wright!
+# Name's Sutoresu!
 
 ## Who are you?
 I'm a 17 year old artist, aspiring programmer and content creator.
